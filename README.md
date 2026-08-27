@@ -1,1 +1,0 @@
-# iscsogang_prayermeeting
